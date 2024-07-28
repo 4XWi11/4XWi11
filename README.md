@@ -1,5 +1,5 @@
 Hi there 👋
 
-🔭 HZNU-Stu TeamGipsy Crypto🐕
+🔭 2020-2023: HZNU-Stu TeamGipsy Crypto🐕
 
-🌱 Crypto-Sec
+🔭 2024-: BUPT-Stu
